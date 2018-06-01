@@ -1,1 +1,1 @@
-# szzd1.github.io
+翻墙 https://szzd1.github.io
